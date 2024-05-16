@@ -3,4 +3,4 @@ olá!
 
 me chamo maria clara.
 
-![](https://tenor.com/pt-BR/view/dog-smile-shyboos-smile-gif-24233810)
+![](https://media1.tenor.com/m/SfIBJjbHH9UAAAAd/dog-smile-shyboos.gif)
